@@ -15,15 +15,17 @@ If you think any of our information can be improved, please do open a PR with an
 
 ## About Analyst Girls Club
 *Russian text below*
+
 Analyst Girls Club - a little warm supportive community for Russian-speaking girls, united by common profession and aspirations. We are open to accepting new like-minded girls. If you want to join us, please, write to the following contacts, or you can contact any of the girls in our community. 
 
 Contacts: 
-E-mail - [afletunova.yulia@gmail.com](mailto:afletunova.yulia@gmail.com)
-LinkedIn - [afletunova](https://www.linkedin.com/in/afletunova/)
+- E-mail - [afletunova.yulia@gmail.com](mailto:afletunova.yulia@gmail.com)
+- LinkedIn - [afletunova](https://www.linkedin.com/in/afletunova/)
 
 Analyst Girls Club - это небольшое уютное поддерживающее коммьюнити для русскоговорящих девушек, объединенных одной профессией и стремлениями. Мы открыты для приема новых единомышленниц. Если вы хотите присоединиться к нам, пожалуйста, напишите по следующим контактам, или же вы можете написать любой из девушек нашего коммьюнити. 
 
 Контакты:
-E-mail - [afletunova.yulia@gmail.com](mailto:afletunova.yulia@gmail.com)
-LinkedIn - [afletunova](https://www.linkedin.com/in/afletunova/)
-Telegram - [yr_afletunova](t.me/yr_afletunova)
+- E-mail - [afletunova.yulia@gmail.com](mailto:afletunova.yulia@gmail.com)
+- LinkedIn - [afletunova](https://www.linkedin.com/in/afletunova/)
+- Telegram - [yr_afletunova](t.me/yr_afletunova)
+
